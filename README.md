@@ -1,7 +1,5 @@
 # info script
 Open source will be premium later 😆
-# CrackIG
-CRACK IG FREE GIVE THE STARS PLEASE
 
 
 # Installation Basic Modules
